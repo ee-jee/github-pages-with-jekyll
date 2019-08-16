@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Making excuses and complaining dont' ... _do anything_. They're not strategies.
